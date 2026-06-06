@@ -6,7 +6,7 @@
 
  hello!! you probably have seen me on pt! you can also check out my strawpage, im always updating it.
 
-other than that, i dont have much to say, basic dnis
+other than that, i dont have much to say, basic dni critera
 
 i may follow back!!
 
