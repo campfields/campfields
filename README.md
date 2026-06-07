@@ -18,12 +18,9 @@ i may follow back!!
 
 
 
-<div align="center">
-  <a href="https://spotify.com">
-    <img src="https://vercel.app" alt="Spotify Now Playing" width="350">
-  </a>
-</div>
-
+<p align="center">
+  <img src="https://vercel.app" alt="Spotify Now Playing" width="350">
+</p>
 
 
 ![](https://komarev.com/ghpvc/?username=campfields)  <--- leaving this here to keep track 
