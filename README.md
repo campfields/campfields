@@ -18,7 +18,6 @@ i may follow back!!
 
 
 
-![Spotify Live Banner](https://your-vercel-app-url.vercel.app/api)
 
 
 ![](https://komarev.com/ghpvc/?username=campfields)  <--- leaving this here to keep track 
