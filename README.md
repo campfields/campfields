@@ -14,6 +14,9 @@ i may follow back!!
 
 
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xzplxve4ixhca4osy33kp74bhu&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
+
+
 <img width="601" height="21" alt="5501d663" src="https://github.com/user-attachments/assets/890f535b-2f87-432a-bdfc-782eb506ffeb" />
 
 
@@ -22,7 +25,3 @@ i may follow back!!
 
 ![](https://komarev.com/ghpvc/?username=campfields)  <--- leaving this here to keep track 
 
-
-
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xzplxve4ixhca4osy33kp74bhu&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
