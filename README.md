@@ -18,9 +18,7 @@ i may follow back!!
 
 
 
-<p align="center">
-  <img src="https://vercel.app" alt="Spotify Now Playing" width="350">
-</p>
+![Spotify Live Banner](https://your-vercel-app-url.vercel.app/api)
 
 
 ![](https://komarev.com/ghpvc/?username=campfields)  <--- leaving this here to keep track 
