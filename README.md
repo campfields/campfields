@@ -6,7 +6,7 @@
 
  hello, you can check out my strawpage, i'm always updating it.
 
-other than that, i don't have much to say, basic dni critera
+other than that, i don't have much to say, basic dni critera.
 
 i might follow back!!
 
