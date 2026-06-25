@@ -26,9 +26,6 @@ what i was/am listening to ^
 
 ![t](https://komarev.com/ghpvc/?username=campfields)  <--leaving this here to keep track 
 
-<a href="https://github.com">
-  <img src="https://komarev.com" alt="cakesniffers" />
-</a>
 
 ⠀
 
