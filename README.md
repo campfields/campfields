@@ -2,6 +2,7 @@
 
 <img width="601" height="29" alt="5501d663" src="https://github.com/user-attachments/assets/a4a7f33c-b0f2-4b48-abfb-d11963d0072d" />
 
+<img width="640" height="360" alt="Screen Shot 2026-06-27 at 15 55 27" src="https://github.com/user-attachments/assets/c25f89d8-e713-4c2e-9ecf-b96f058436fd" />
 
 
  hello, you can check out my strawpage, i'm always updating it.
