@@ -18,7 +18,7 @@ i may follow back.
 
 what i was/am listening to ^
 
-<img width="601" height="21" alt="5501d663" src="https://github.com/user-attachments/assets/890f535b-2f87-432a-bdfc-782eb506ffeb" />
+<img width="601" height="29" alt="5501d663" src="https://github.com/user-attachments/assets/890f535b-2f87-432a-bdfc-782eb506ffeb" />
 
 
 
