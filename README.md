@@ -6,8 +6,6 @@
 
 <img width="640" height="360" alt="Screen Shot 2026-06-27 at 15 55 27" src="https://github.com/user-attachments/assets/c25f89d8-e713-4c2e-9ecf-b96f058436fd" />
 
-<img width="540" height="257" alt="67dgnu" src="https://github.com/user-attachments/assets/961a2ce7-1582-45b3-a4b2-84139a4b183c" />
-
 
  hello, you can check out my strawpage, i'm always updating it.
 
