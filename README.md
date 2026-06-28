@@ -14,12 +14,9 @@
 Things To Know
 
 I am a quiet person, or as loud as i can be. there is no in-between.
-
-⚠️I will not take any jokes about terrorism lightly.⚠️ i will most likely block or ignore you.
-
+I will not take any jokes about terrorism lightly. i will most likely block or ignore you.
 
 basic dni critera.
-
 i may follow back.
 
 Things i like: Night At The Museum, Maze Runner, A Series Of Unfortunate Events, Good Burger, The Outsiders, Rush Hour!!
