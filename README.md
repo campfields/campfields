@@ -27,7 +27,7 @@ Things i like: Night At The Museum, Maze Runner, A Series Of Unfortunate Events,
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xzplxve4ixhca4osy33kp74bhu&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
 
-what i was/am listening to ^ (Yes, i know my music taste is absolutely abysmal..)
+what i was/am listening to ^ (Yes, i know i have divorced teacher music taste)
 
 <img width="99" height="56" alt="ceilingcat" src="https://github.com/user-attachments/assets/b448cee5-986e-4ad2-93eb-682259e06608" />
 
