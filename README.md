@@ -13,7 +13,7 @@ other than that, i don't have much to say, basic dni critera.
 
 i may follow back.
 
-Things i like: Night At The Museum, Maze Runner, A Series Of Unfortunate Events, Good Burger, Rush Hour!!
+Things i like: Night At The Museum, Maze Runner, A Series Of Unfortunate Events, Young Sheldon, Good Burger, Rush Hour!!
 
 <img width="150" height="20" alt="blinkiesCafe-mk" src="https://github.com/user-attachments/assets/733f6595-4b75-45a6-94b0-7f85ee20473c" />
 
