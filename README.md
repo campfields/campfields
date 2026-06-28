@@ -4,7 +4,8 @@
 
 <img width="520" height="16" alt="piano" src="https://github.com/user-attachments/assets/86beddfe-1d26-4026-8ccc-781834050250" />
 
-<img width="99" height="56" alt="ceilingcat" src="https://github.com/user-attachments/assets/c76086b8-9280-4cef-b1a3-bb7c5bd80399" />
+<img width="640" height="428" alt="early school mornings" src="https://github.com/user-attachments/assets/50e60017-66ab-4569-bb05-45df0bf263f6" />
+
 
 
 
