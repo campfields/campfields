@@ -11,7 +11,14 @@
 
  hello, you can check out my strawpage, i'm always updating it.
 
-other than that, i don't have much to say, basic dni critera.
+Things To Know
+
+I am a quiet person, or as loud as i can be. there is no in-between.
+
+⚠️I will not take any jokes about terrorism lightly.⚠️ i will most likely block or ignore you.
+
+
+basic dni critera.
 
 i may follow back.
 
