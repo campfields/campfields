@@ -4,7 +4,8 @@
 
 <img width="520" height="16" alt="piano" src="https://github.com/user-attachments/assets/86beddfe-1d26-4026-8ccc-781834050250" />
 
-<img width="640" height="360" alt="Screen Shot 2026-06-27 at 15 55 27" src="https://github.com/user-attachments/assets/c25f89d8-e713-4c2e-9ecf-b96f058436fd" />
+<img width="99" height="56" alt="ceilingcat" src="https://github.com/user-attachments/assets/c76086b8-9280-4cef-b1a3-bb7c5bd80399" />
+
 
 
  hello, you can check out my strawpage, i'm always updating it.
@@ -22,8 +23,6 @@ Things i like: Night At The Museum, Maze Runner, A Series Of Unfortunate Events,
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xzplxve4ixhca4osy33kp74bhu&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
 
 what i was/am listening to ^ (Yes, i know my music taste is absolutely abysmal..)
-
-<img width="384" height="323" alt="💩post     😼" src="https://github.com/user-attachments/assets/ed670f35-9fb1-49aa-935d-8e0fc58a55ed" />
 
 
 <img width="520" height="16" alt="piano" src="https://github.com/user-attachments/assets/64850823-b6d0-4e26-801f-c23203da05e8" />
