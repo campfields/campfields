@@ -24,6 +24,9 @@ Things i like: Night At The Museum, Maze Runner, A Series Of Unfortunate Events,
 
 what i was/am listening to ^ (Yes, i know my music taste is absolutely abysmal..)
 
+<img width="99" height="56" alt="ceilingcat" src="https://github.com/user-attachments/assets/b448cee5-986e-4ad2-93eb-682259e06608" />
+
+
 
 <img width="520" height="16" alt="piano" src="https://github.com/user-attachments/assets/64850823-b6d0-4e26-801f-c23203da05e8" />
 
