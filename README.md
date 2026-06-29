@@ -15,6 +15,7 @@ Things To Know
 
 I am a quiet person, or as loud as i can be. there is no in-between.
 I will not take any jokes about terrorism lightly. i will most likely block or ignore you.
+I do not take interest in any animated films or video games. i don't like that kind of stuff but i dont mind hearing about it.
 
 basic dni critera.
 i may follow back.
