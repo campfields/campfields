@@ -1,3 +1,4 @@
+<img width="564" height="188" alt="sycuthi" src="https://github.com/user-attachments/assets/f078b4dd-fb5a-41b6-969c-94cbae66b8b9" />
 ## ⋆
 
 
@@ -18,7 +19,8 @@
 
 
 
-![t](https://komarev.com/ghpvc/?username=campfields)  <--leaving this here to keep track 
+![t](https://komarev.com/ghpvc/?username=campfields) <img width="564" height="188" alt="sycuthi" src="https://github.com/user-attachments/assets/1ce28806-9095-4b0b-aca6-cb12b4412722" />
+ 
 
 
 ⠀
