@@ -19,7 +19,7 @@
 
 
 
-![t](https://komarev.com/ghpvc/?username=campfields) <img width="564" height="188" alt="sycuthi" src="https://github.com/user-attachments/assets/1ce28806-9095-4b0b-aca6-cb12b4412722" />
+<img width="564" height="188" alt="sycuthi" src="https://github.com/user-attachments/assets/1ce28806-9095-4b0b-aca6-cb12b4412722" />
  
 
 
